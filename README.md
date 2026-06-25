@@ -40,8 +40,8 @@ Provides depth‑psychological and phenomenological treatment for adults, integr
 ### **United States**
 - Doctoral‑Level Training in Psychology  
   Private Doctoral‑Level Clinical Training Program, Saratoga Springs, NY (2021–2025)
-- Doctoral‑Level Training in Analytical Psychology  
-  Saratoga Springs, NY (2021–2025)
+- Doctoral‑Level Training in Analytical Psychology   
+  Private Doctoral‑Level Clinical Training Program, Saratoga Springs, NY (2021–2025)
 - Advanced Jungian Analytic Training (Personal Analysis)  
   Saratoga Springs, NY (2021–2025)
 
@@ -49,8 +49,8 @@ Provides depth‑psychological and phenomenological treatment for adults, integr
 - Analytical Psychotherapist  
   Specialization School in Analytical Psychotherapy, Bologna (2009)  
   > “Authorized under Art. 3, Law 56/1989 – postgraduate clinical specialization.”
-- Advanced Jungian Analytic Training — Milano (2009–2011)  
-- Advanced Jungian Analytic Training — Bologna (2005–2009)
+- Advanced Jungian Analytic Training — Milano (2009–2011) (Personal Analysis)   
+- Advanced Jungian Analytic Training — Bologna (2005–2009) (Personal Analysis)  
 
 ### **Medical Education**
 - Medical Doctor (MD)  
